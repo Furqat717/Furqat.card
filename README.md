@@ -1,0 +1,1 @@
+# Furqat.card
